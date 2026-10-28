@@ -1,0 +1,1 @@
+Add an approved portrait image here named thandeka-kathi-portrait.jpg. The homepage shows a neutral placeholder until the image is provided. Please use an image approved for public use.
